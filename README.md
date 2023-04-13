@@ -1,0 +1,1 @@
+# Ryzen-5600-MSI-b450i-5600xt-EFI
